@@ -12,7 +12,8 @@
 * tripa de boi guisada
 * ensopado de pica-pau
 * tchuritchuritchuflai ao molho madeira
-* 
+* Pavê de moela da Galo
+* caldo de Galo
 
 
 
